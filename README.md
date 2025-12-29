@@ -1,5 +1,5 @@
 # 💫 About Me:
-‧₊˚👩🏻‍💻✩Hello World,Debasmita this side!<br>🖇️I'm a CS undergrad student<br>֎🤖🧠Currently I'm learning Agentic AI<br>📱I like Cross-platform app dev🛠️⚡<br>💬I am open to collaborate on projects‼️
+‧₊˚👩🏻‍💻✩Hello World,Debasmita this side!<br>🖇️I'm a CS undergrad student<br>֎📱I like Cross-platform app dev🛠️⚡<br>💬I am open to collaborate on projects‼️
 
 
 ## 🌐 Socials:
